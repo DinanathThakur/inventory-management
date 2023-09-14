@@ -60,3 +60,5 @@
 ## Screenshots
 
 [Watch the video](https://www.awesomescreenshot.com/video/20765654)
+
+[Uploaded to drive](https://drive.google.com/file/d/1siCy2I6Gqg43dS49gqy1hfYPkXcEDRMr/view?usp=sharing)
